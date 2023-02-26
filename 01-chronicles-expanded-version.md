@@ -59,3 +59,22 @@ As they journey through space, Alex becomes the leader of the human race, and he
 
 In the end, humanity survives, thanks to the efforts of a lone alien and the extraordinary abilities of his hybrid son. The future is uncertain, but the human spirit endures, and the hope for a better tomorrow lives on.
 
+Chapter 9: Battle for Resources
+
+The war between USE and PRNS continued to rage on throughout the fall of 2021. Despite the technological advantages of USE, the small country was not going down without a fight. With the secret support of Sentre, PRNS was able to hold its own against the USE forces, which were spread thin across the globe. The battle for control of the precious metal resources dragged on, with neither side able to gain a decisive advantage.
+
+Chapter 10: The Rise of the United States of Earth
+
+As the war continued, USE realized that it needed to streamline its decision-making process and increase efficiency in order to build the necessary spaceships and technologies to save humanity from the dying sun. In October 2021, USE was born, with a focus on space exploration and technology development. The AI machine, developed by Goaga's AI group, was put in charge of fact-checking and calculating a score for proposals, making decision-making more efficient.
+
+Chapter 11: The Church of New Sun
+
+Meanwhile, a new threat emerged in the form of the Church of New Sun (CNS). This mysterious organization claimed to have the power to revive the sun and called for people to join them. They stole money from banks and other financial institutions to fund their own spaceship to fly close to the sun and cast some kind of magic. USE was quick to condemn CNS, claiming that they were attempting to destroy the sun and plunge humanity into darkness.
+
+Chapter 12: The People's Republic of New Sun
+
+It was discovered that members of CNS were hiding in the small country protected by Sentre, which had now renamed itself the People's Republic of New Sun (PRNS). The country was organized in a strict religious manner determined by CNS and had already made several failed attempts to launch spaceships towards the sun. USE accused PRNS of attempting to destroy the sun, which would be a mutually assured destruction similar to the Cold War era nuclear warheads.
+
+Chapter 13: Invasion of PRNS
+
+With the threat of CNS looming, USE decided to strengthen its efforts to invade PRNS. The battle for resources had become a battle for survival, and USE was determined to come out on top. However, with the secret support of Sentre and the fanaticism of CNS, PRNS was not going down without a fight. The stage was set for an epic battle that would decide the fate of humanity.
