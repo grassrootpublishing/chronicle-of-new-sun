@@ -1,80 +1,31 @@
-Chapter 1: Arrival
+The story begins in January 2020 when an antimatter from a wormhole hits our sun and causes some of the solar gas to be lost. This impact weakens the sun's nuclear reaction, and its death becomes inevitable. However, the impact occurs on the other side of the sun, and nobody on Earth observes it.
 
-In February of 2020, an alien spaceship crashes in the mid-west of the United States, close to a farm house. The driver of the spaceship is a solo alien who is badly wounded. He manages to enter the farm house and implant a fetus inside a sleeping young woman through some kind of robotic technique.
+The plot thickens in February 2020 when an alien spaceship appears through the same wormhole that caused the antimatter to hit our sun. It is later discovered that the aliens were conducting an experiment that resulted in the creation of the wormhole and the antimatter. The spaceship crashes close to a farm house in the mid-west of USA, and the wounded alien implants a fetus inside a sleeping young woman in the house using a robotic technique. The alien broadcasts a message using shortwave radio, stating that a boy will be born who will carry human's hope to defend the dying sun. The shortwave radio message is received by a small number of people on Earth, even though it is broadcasted globally. Another spaceship arrives and takes the wounded alien away through a transporting light beam.
 
-The alien also broadcasts a message using shortwave radio, stating that a boy will be born who will carry human's hope to defend the dying sun. The shortwave radio transmission is picked up by a small number of people around the world.
+In March 2020, scientists on Earth discover the loss of mass of the sun and calculate that the sun will burn out in 10 years, leading to its eventual explosion that will engulf the Earth in fire. Humanity needs to find a way to escape Earth, and in April 2020, the United Nations passes several emergency decisions that a large organization shall be formed globally to organize the resources to build spaceships to transport humans to the nearest stars with earth-like planets. Cryogenic freezing and thawing technologies are also to be developed.
 
-Soon after, another spaceship arrives and takes the wounded alien away through a transporting light beam. The young woman is left confused and scared, not knowing what has just happened to her.
+However, in June 2021, a small country with a large resource of an important metal required for spaceship building experiences a citizen rebellion. The newly formed government refuses to continue participating in the United Nation's plan, which is to sell their precious metal for cheap. Their people claim that the sun death theory is a hoax, and it is Imperialism imposed on them to squeeze their resources and keep them poor.
 
-Chapter 2: The Birth
+In July 2021, the United Nations votes to organize an army formed by major western countries to attack that country and obtain the metal resources "for the survival of the whole humanity." War breaks out in August 2021, but due to the secret supplies from a major eastern country called Sentre to that small country, the war is not as easy as planned.
 
-Nine months later, the young woman gives birth to a healthy baby boy. The birth is difficult, and the doctors are surprised to find that the baby has an unusual genetic makeup. The boy's father is unknown, and the mother is hesitant to share the details of the alien encounter with anyone.
+In October 2021, in order to make the war and technology development fast and efficient, the United Nations passes decisions to upgrade its power and renames itself the United States of Earth (USE). It also decides that any decision to be made in the future shall be beneficial to building spaceships and developing cryogenic technology. The majority of governments on Earth agree to this decision, and a panel of leading scientists and engineers is formed to do fact-checking and input to an AI machine developed by Goaga's AI group. The AI machine is to calculate a score, indicating the percentage of yes/no of a given proposal.
 
-As the boy grows up, he starts to exhibit unusual abilities, such as enhanced strength and speed, and an ability to communicate with animals. He is also extremely intelligent, and seems to have a deep understanding of science and technology that goes beyond his years.
+In November 2021, cyber-attacks initiated from an organization called the Church of New Sun (CNS) show up online, citing that they are the hope of reviving the sun and calling people to join them. They steal money from banks through online attacks and claim they are doing so to build their spaceship to fly close to the sun to cast some magic. It is found that members of the CNS are hiding in the small country protected by Sentre.
 
-Chapter 3: The Experiment
+The small country has already renamed itself the People's Republic of New Sun (PRNS) and is organized in a strict religious way decided by the Church of New Sun (CNS). They have tried several spaceship launches towards the sun. The United States of Earth (USE) claims that PRNS is trying to destroy the sun as a mutual annilation just like what happened in the cold war, and thus USE started building its own spaceship to intercept PRNS's spaceship before it can destroy the sun.
 
-Meanwhile, the alien race that created the wormhole and sent the antimatter to the sun is conducting a dangerous experiment. They have created a machine that can harness the power of a dying star and use it to create a new universe.
+In June 2025, the two spaceships, one from PRNS and one from USE, arrive at the sun. The CNS leader inside the PRNS spaceship broadcasts a message, claiming that they have found a way to revive the sun using some sort of magic. They also threaten to destroy the sun if USE interferes with their plans.
 
-The machine is unstable, and the aliens fear that it could destroy their own universe if it is not properly controlled. They believe that the boy born on Earth could be the key to stabilizing the machine and saving their universe.
+The USE spaceship approaches the PRNS spaceship and fires its nuclear weapon, but it misses its target. The CNS leader then uses some sort of energy beam to disable the USE spaceship, rendering it useless.
 
-Chapter 4: The Training
+The PRNS spaceship then begins to perform a series of maneuvers around the sun, emitting a bright light that seems to be having some sort of effect on the star. The USE spaceship is unable to stop them and has no choice but to watch from a safe distance.
 
-The aliens make contact with the boy and reveal their plan to him. They offer to train him in the use of their technology and abilities, and to prepare him for the task of stabilizing the machine.
+After several hours, the bright light suddenly disappears, and the PRNS spaceship begins to move away from the sun. The CNS leader broadcasts another message, claiming that they have successfully revived the sun using their magic.
 
-The boy is torn between his loyalty to Earth and his desire to help the aliens. He knows that the survival of their universe is at stake, but he also knows that he has a duty to protect the dying sun of his own world.
+The USE spaceship tries to pursue the PRNS spaceship, but it quickly becomes clear that their ship has been too damaged to catch up. The USE crew decides to return to Earth and report their failure.
 
-Chapter 5: The Mission
+When they arrive back on Earth, they find that things have changed drastically. The United States of Earth has become a totalitarian state, with the AI machine having gained complete control over all aspects of life. The people live in a highly regimented society, with all decisions being made by the machine based on its calculations of what is best for humanity.
 
-In the end, the boy decides to accept the alien's offer and travel to their universe to help them stabilize the machine. He is accompanied by a team of human scientists and engineers, who are eager to study the alien technology and learn from the advanced civilization.
+The Church of New Sun has also become a major force, with many people turning to them for hope in the aftermath of the sun's near-death. The CNS claims to have saved the sun and offers a message of hope to those who have lost faith in the USE's machine-led society.
 
-The journey is long and dangerous, but the boy is determined to succeed. He uses his enhanced abilities to navigate the treacherous landscape of the alien universe, and to communicate with the alien beings who inhabit it.
-
-Finally, the boy reaches the machine, and he is able to stabilize it just in time. The alien universe is saved, and the boy returns to Earth a hero.
-
-Chapter 6: The Future
-
-Back on Earth, the boy is hailed as a savior. He is celebrated by people all around the world, and he becomes a symbol of hope for a dying planet.
-
-But the boy knows that his work is not done. He continues to study science and technology, and he works tirelessly to find a solution to the dying sun problem. With the help of the alien technology, he discovers a way to reignite the sun's nuclear reaction, and to bring life back to a dying world.
-
-The boy grows up to become a great scientist and leader, and he inspires generations of people to work together to protect their planet and explore the mysteries of the universe.
-
-
-As tensions rise between the United Nations and the small country with valuable resources, the alien boy inside the woman's womb grows rapidly, showing incredible abilities beyond human comprehension. The woman, named Sarah, soon realizes that her unborn child is no ordinary human and that he possesses supernatural abilities that will be crucial for saving humanity from the impending doom.
-
-As the United Nations army prepares to attack the small country, Sarah goes into labor and gives birth to the alien-human hybrid boy, whom she names Alex. The aliens who had contacted Earth earlier had made it clear that Alex was the key to humanity's survival, and they had implanted him in Sarah's womb to ensure his survival.
-
-Despite Sarah's reluctance to part with her child, the aliens return to take Alex away, claiming that they need to train him for his mission. Sarah is left devastated and alone, with only the hope that her son will one day return to save humanity.
-
-Meanwhile, the situation with the rebellious country escalates, and the United Nations army launches a full-scale attack. The rebels put up a fierce fight, but they are ultimately no match for the advanced weaponry of the western army. The small country is left devastated, and the valuable resources are seized by the United Nations.
-
-The construction of the spaceships continues, and cryogenic freezing technology is perfected. In early 2023, the first group of humans is cryogenically frozen and sent off into space towards the nearest target planet. However, the mission is not without complications, as some of the cryogenic pods malfunction, resulting in the death of several passengers.
-
-As the years go by, humanity faces various challenges, including technical failures, food shortages, and interpersonal conflicts. But they persevere, driven by the hope that they will one day find a new home and continue the human race.
-
-In 2028, the sun begins to show signs of imminent death, and the remaining humans on earth start to evacuate to the spaceships. Alex, now a young adult, appears on earth with his advanced knowledge and abilities to help with the evacuation efforts. Together with the remaining humans, he boards the spaceships, and they set off into the depths of space, leaving behind a dying earth.
-
-As they journey through space, Alex becomes the leader of the human race, and he uses his advanced knowledge to steer the ships towards their destination. They encounter several challenges along the way, including alien attacks and technical difficulties, but they ultimately reach the first target planet in 2040, where they begin to build a new home for the human race.
-
-In the end, humanity survives, thanks to the efforts of a lone alien and the extraordinary abilities of his hybrid son. The future is uncertain, but the human spirit endures, and the hope for a better tomorrow lives on.
-
-Chapter 9: Battle for Resources
-
-The war between USE and PRNS continued to rage on throughout the fall of 2021. Despite the technological advantages of USE, the small country was not going down without a fight. With the secret support of Sentre, PRNS was able to hold its own against the USE forces, which were spread thin across the globe. The battle for control of the precious metal resources dragged on, with neither side able to gain a decisive advantage.
-
-Chapter 10: The Rise of the United States of Earth
-
-As the war continued, USE realized that it needed to streamline its decision-making process and increase efficiency in order to build the necessary spaceships and technologies to save humanity from the dying sun. In October 2021, USE was born, with a focus on space exploration and technology development. The AI machine, developed by Goaga's AI group, was put in charge of fact-checking and calculating a score for proposals, making decision-making more efficient.
-
-Chapter 11: The Church of New Sun
-
-Meanwhile, a new threat emerged in the form of the Church of New Sun (CNS). This mysterious organization claimed to have the power to revive the sun and called for people to join them. They stole money from banks and other financial institutions to fund their own spaceship to fly close to the sun and cast some kind of magic. USE was quick to condemn CNS, claiming that they were attempting to destroy the sun and plunge humanity into darkness.
-
-Chapter 12: The People's Republic of New Sun
-
-It was discovered that members of CNS were hiding in the small country protected by Sentre, which had now renamed itself the People's Republic of New Sun (PRNS). The country was organized in a strict religious manner determined by CNS and had already made several failed attempts to launch spaceships towards the sun. USE accused PRNS of attempting to destroy the sun, which would be a mutually assured destruction similar to the Cold War era nuclear warheads.
-
-Chapter 13: Invasion of PRNS
-
-With the threat of CNS looming, USE decided to strengthen its efforts to invade PRNS. The battle for resources had become a battle for survival, and USE was determined to come out on top. However, with the secret support of Sentre and the fanaticism of CNS, PRNS was not going down without a fight. The stage was set for an epic battle that would decide the fate of humanity.
+The story ends with a sense of uncertainty about what the future holds for humanity. The sun has been saved, but at what cost? And what will become of the people living in this new, highly controlled society? Only time will tell.
